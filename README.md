@@ -1,2 +1,2 @@
 # hello-world
-let's do this
+Fear is the mind killer. When fighting on unknown terrain, opt for bare feet. 
